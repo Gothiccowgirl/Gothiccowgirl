@@ -16,3 +16,15 @@ Please do not question what i support and dont support, i really do not care if 
 
 
 ${\textsf{\color{#FAE3C6}Do not interact if i cut you off, do not attempt to ask about ANY drama if i do not know you, i MIGHT be willing to tell you privately in discord}}$, but that is unlikely if you are someone i do not trust.
+
+
+
+
+
+
+
+
+
+
+<img width="1200" height="630" alt="image" src="https://github.com/user-attachments/assets/fd96a750-bfe1-4f92-9015-16a5820f61ee" />
+
