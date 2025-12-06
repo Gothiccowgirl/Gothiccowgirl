@@ -11,7 +11,7 @@ Please do not question what i support and dont support, i really do not care if 
 
 
 
-<img width="96" height="96" alt="image" src="https://github.com/user-attachments/assets/e4e8bdcd-27c5-4a45-b4b0-07080cbff7f5" />
+<img width="96" height="96" alt="image" src="https://github.com/user-attachments/assets/e4e8bdcd-27c5-4a45-b4b0-07080cbff7f5" /> My oc, drawn by @stipsl . <3
 
 
 
