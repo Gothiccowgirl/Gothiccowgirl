@@ -9,4 +9,4 @@ ${\textsf{\color{#FAE3C6}I am not a proshipper!!}}$ , but i will be friends with
 
 
 
-https://cdn.discordapp.com/emojis/1371764986048942141.webp?size=96&animated=true
+
