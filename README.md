@@ -15,4 +15,4 @@ Please do not question what i support and dont support, i really do not care if 
 
 
 
-${\textsf{\color{#FAE3C6}Do not interact if i cut you off, do not attempt to ask about ANY drama if i do not know you, i MIGHT be willing to tell you privately in discord, but that would be unlikely if you are a stranger or someone i dont trust.}}$
+${\textsf{\color{#FAE3C6}Do not interact if i cut you off, do not attempt to ask about ANY drama if i do not know you, i MIGHT be willing to tell you privately in discord}}$
