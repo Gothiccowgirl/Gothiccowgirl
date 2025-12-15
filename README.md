@@ -9,6 +9,7 @@ I do not support all genders / sexualities, but i will not be RUDE or mention wh
 
 Please do not question what i support and dont support, i really do not care if you dislike any of it, i have a life outside of the internet!
 
+i love my friends, no matter what they ship and/or do . please do not ask why im friends with people, i look PAST problematic shipping to see the actual person. 
 
 
 <img width="96" height="96" alt="image" src="https://github.com/user-attachments/assets/e4e8bdcd-27c5-4a45-b4b0-07080cbff7f5" /> My oc, drawn by @stipsl . <3
