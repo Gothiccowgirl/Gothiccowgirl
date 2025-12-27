@@ -9,7 +9,7 @@ probably redoing this later,
 
 
 
-${\textsf{\color{#FAE3C6}do not attempt to ask about ANY drama if i do not know you.}}$, 
+${\textsf{\color{#FAE3C6}do not attempt to ask about ANY drama.}}$, 
 
 
 
