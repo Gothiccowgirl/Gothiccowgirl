@@ -12,7 +12,7 @@ wip .
   
 
   
- Check out my species github / socials , ( Wip ) @Pixiels 
+
  
 
 
